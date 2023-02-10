@@ -22,5 +22,6 @@ Porn is used to train sex slaves (http://www.cwfa.org/wp-content/uploads/2013/11
 Porn is integral to prostitution (http://www.prostitutionresearch.com/FarleyRentinganOrgan11-06.pdf) “49% reported that pornography was made of them while in prostitution. 47% reported being upset by a customer’s insistence to perform an act previously seen in pornography. A similar study found 52% of prostitutes reported that pornography played a significant role in teaching what was expected of them as prostitutes.”
 The demand for porn fuels the demand for sex trafficking (https://www.covenanteyes.com/2011/09/07/the-connections-between-pornography-and-sex-trafficking/).
 About half of sex trafficking survivors report porn was made of them when they were in bondage (https://fightthenewdrug.org/how-porn-fuels-sex-trafficking/).
-A study in 2010 suggests a link between porn consumption and rape-supportive attitudes in men (http://www.sscnet.ucla.edu/comm/malamuth/pdf/00arsr11.pdf).
-How porn changes your brain (https://www.theguardian.com/commentisfree/2013/sep/26/brain-scans-porn-addicts-sexual-tastes)
+A study in 2010 suggests a link between porn consumption and rape-supportive attitudes in men (http://www.sscnet.ucla.edu/com![photo_2020-04-25_16-24-18](https://user-images.githubusercontent.com/125066163/218137728-1f217373-c854-47c9-91b2-0dd867b04d08.jpg)
+m/malamuth/pdf/00arsr11.pdf).
+How porn changes your brain (https://www.theguardian.com/commentisfree/2013/sep/26/brain-scans-porn-addicts-sexual-tastes) 
