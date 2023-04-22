@@ -27,5 +27,3 @@ Following instances of aggression towards women, in 95% of cases the women expre
 - "Repeated consumption of porn causes the brain to literally rewire itself. It triggers the brain to pump out chemicals and form new nerve pathways, leading to profound and lasting changes in the brain" (https://boilingwaters.ph/how-porn-changes-the-brain/)
 ![photo_2020-04-25_16-24-18](https://user-images.githubusercontent.com/125066163/232884353-a3d1589b-5497-4e63-87c0-8bb11c92a68b.jpg)![photo_2020-04-25_16-24-19](https://user-images.githubusercontent.com/125066163/232884366-cd37655f-7a8b-45a7-94d1-1b89ace83455.jpg)
 - Psychosocial Aspects of Pornography: "Pornography is an expression of fantasies and is said to have the potential to rewire pleasure centers of the brain and alter structures and function" ... "Pornography can bring about significant changes in the brain similar to what can be seen in drug addictions" (https://journals.sagepub.com/doi/full/10.1177/2631831818821535)
-
-
